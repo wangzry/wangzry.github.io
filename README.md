@@ -1,1 +1,1 @@
-my blog
+welcome to wangpf’s blog! this blog is used to make a record of my process of study and life, and just to share.
